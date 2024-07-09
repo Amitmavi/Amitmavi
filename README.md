@@ -35,4 +35,4 @@
 
 
 <br>
-⭐️ From [axiftaj](https://github.com/Amitmavi)
+⭐️ From [Amit Mavi](https://github.com/Amitmavi)
